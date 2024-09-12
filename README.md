@@ -9,4 +9,4 @@ Meu nome é Breno Matheus
 ### Você pode entrar em contato comigo 📫
 
 breno.santos12@escola.pr.gov.br
-![https://tenor.com/pt-BR/view/ordem-paranormal-gif-27379327]
+![](https://tenor.com/pt-BR/view/ordem-paranormal-gif-27379327)
